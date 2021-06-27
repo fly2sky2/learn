@@ -15,7 +15,7 @@
 
 
 #### 下载地址
-https://wwr.lanzoui.com/b02c5usfi  密码:8888
+https://www.lanzoui.com/b02c5usfi  密码:8888
 
 
 #### 更新日志
