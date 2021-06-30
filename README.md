@@ -16,7 +16,7 @@
 
 #### 图文教程
 
-https://alipic.lanhuapp.com/image/AXRbzNbRYtfAZwaFv3NLAD 
+https://alipic.lanhuapp.com/image/AXRbzNbRYtfAZwaFv3NLAD （复制链接进行访问哦）
 
 #### 下载地址
 https://www.lanzoui.com/b02c5usfi  密码:8888
