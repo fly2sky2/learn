@@ -19,7 +19,7 @@
 https://www.lanzoui.com/b02c5usfi  密码:8888
 
 
-![image](https://alipic.lanhuapp.com/image/AXRbzNbRYtfAZwaFv3NLAD)
+![image](https://alipic.lanhuapp.com/image/AXRbzNbRYtfAZwaFv3NLAD.gif)
 
 #### 更新日志
 1. 修复答题速度 
