@@ -14,12 +14,14 @@
 2. 打开学习强国软件，点击挑战答题。四人赛、对战答题后，软件会自动答题。(0003)
 
 
+#### 图文教程
+
+https://alipic.lanhuapp.com/image/AXRbzNbRYtfAZwaFv3NLAD 
 
 #### 下载地址
 https://www.lanzoui.com/b02c5usfi  密码:8888
 
 
-![image](https://alipic.lanhuapp.com/image/AXRbzNbRYtfAZwaFv3NLAD.gif)
 
 #### 更新日志
 1. 修复答题速度 
