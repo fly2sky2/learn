@@ -22,6 +22,12 @@ https://alipic.lanhuapp.com/image/AXRbzNbRYtfAZwaFv3NLAD （复制链接进行�
 https://www.lanzoui.com/b02c5usfi  密码:8888
 
 
+#### 温馨提示
+1. 下个版本即将推出，适配更多的机型！
+2. 更强大的题库。你也是提供的贡献者哦！
+3. 更快的答题速度！ 
+
+
 
 #### 更新日志
 1. 修复答题速度 
